@@ -71,7 +71,7 @@ By completing this reflection, you will gain a clearer understanding of your car
     
     - Identify potential obstacles or challenges in reaching your goals.
     - Consider strategies to overcome these challenges.
-2. **Opportunities for Growth**:
+2. **Anticipated Challenges**:
     
     - Highlight any opportunities you can leverage for career growth.
     - Include networking, mentorship, or educational opportunities.
